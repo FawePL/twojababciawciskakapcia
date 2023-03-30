@@ -1,2 +1,2 @@
-# twojababciawciskakapcia
-ser biały
+# twojababciawciskakapcia nou
+ser czarny
